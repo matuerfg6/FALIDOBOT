@@ -1,0 +1,2 @@
+# FALIDOBOT
+KIBA NÃO ZE
